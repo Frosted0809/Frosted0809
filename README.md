@@ -1,4 +1,4 @@
-## Hi there im Frosted0809 👋 i like doing random things
+## Hi there im Frosted0809 👋 i like making things
 
 ```
 ⠀⠀⠀⠀⠀⠀⢀⡴⢾⣶⣴⠚⣫⠏⠉⠉⠛⠛⢭⡓⢶⣶⠶⣦⡀⠀⠀⠀⠀⠀
